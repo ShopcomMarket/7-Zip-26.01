@@ -12,7 +12,7 @@ https://www.shopcom.tn/product/7-zip-26-01/
 Product Price : Free
 
 Payment :
-https://www.shopcom.tn/payment
+https://www.shopcom.tn/payments
 
 Website :
 https://www.shopcom.tn
